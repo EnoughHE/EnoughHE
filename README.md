@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @EnoughHE
-- 👀 I’m interested in Fivem And Web Devlopment
+- 👀 I’m interested in Fivem And Web Development
 - 📫 How to reach me ( If You Have Any Issue Just Type It And I will Check It
